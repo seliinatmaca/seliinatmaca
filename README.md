@@ -5,4 +5,4 @@
 - 💞️ I highly value the flow of work, and thanks to my communication skills, I can collaborate efficiently with team members. I have been involved in many projects, each of which has provided learning opportunities and experiences for personal growth.
 - 📫 I am genuinely looking forward to working with creative teams on new projects in this journey.
 
-- Selin Atmaca
+  Selin Atmaca
